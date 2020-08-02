@@ -7,3 +7,7 @@ asagohanwo
 tukutteiru
 
 Hi humans!
+
+tuikadekaitemiru;
+naze;
+ichigyou.
